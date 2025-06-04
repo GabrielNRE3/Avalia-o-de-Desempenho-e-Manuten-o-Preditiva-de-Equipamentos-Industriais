@@ -1,0 +1,1 @@
+# Avalia-o-de-Desempenho-e-Manuten-o-Preditiva-de-Equipamentos-Industriais
